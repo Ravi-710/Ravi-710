@@ -1,4 +1,4 @@
-**OUTPUT-**
+**OUTPUT -**
 
 
 ![Screenshotss](https://github.com/Ravi-710/Ravi-710/assets/98272814/e7097131-477f-41a4-8176-a951532a3a77)
